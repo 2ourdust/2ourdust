@@ -9,6 +9,6 @@
 <p align="center"> ❛ㅤㅤㅤㅤㅤ　‎‎ ‎‎ ‎‎ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ　ryu !!　‎‎ ‎‎ ⟡‎‎ ‎‎ ‎‎ 　anyㅤㅤㅤㅤㅤ‎‎ ‎‎ ‎‎  pronouns  </p>
 
 <p align="center"> ‿◞  ‎‎ ‎‎   c + h always !! I love when people sit next to me although i am socially awkward , i may have slow replies due to me being offtab half the time . ——— 🎵 
-  
-</br>
-<p align=“center”> &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; <img src=“https://komarev.com/ghpvc/?username=danceandydance&color=dc143c”> </p> 
+</br> </br> 
+
+![](https://komarev.com/ghpvc/?username=danceandydance)
