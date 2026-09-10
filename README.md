@@ -11,4 +11,6 @@
 <p align="center"> ‿◞  ‎‎ ‎‎   c + h always !! I love when people sit next to me although i am socially awkward , i may have slow replies due to me being offtab half the time . ——— 🎵 
   
 </br>
-<p align=“center”> &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; <img src=“https://komarev.com/ghpvc/?username=danceandydance&color=brown&style=flat&label=🎵”> </p>
+<p align=“center”> &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; 
+  
+  ![](https://komarev.com/ghpvc/?username=danceandydance&color=dc143c)
