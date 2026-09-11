@@ -12,7 +12,10 @@
 ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎  ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎ ‎‎ ‎‎ ‎‎ [atabook](https://danceandy.atabook.org) ✦ ㅤㅤㅤㅤㅤㅤㅤㅤ‎[send me andy things!](https://danceandy.straw.page)‎‎
 </br> </br>
 <p align=“center”>‎‎ ‎‎ 
-‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎  ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ <img width="150" height="20" alt="IMG_0712" src="https://github.com/user-attachments/assets/593bd5a4-dc41-4e61-8a98-a851cae3c535" /> <img width="150" height="20" alt="IMG_0711" src="https://github.com/user-attachments/assets/342dd7c6-d3ee-4855-9d7c-2dea20c41393" /> <img width="150" height="20" alt="IMG_0710" src="https://github.com/user-attachments/assets/8ec3558f-e801-44a1-9fd9-1b1b3d8d8988" />
+‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎
+                    ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎  <img width="120" height="58" alt="IMG_0782" src="https://github.com/user-attachments/assets/b277c951-137a-43d7-b0af-d6aa28b6a387" />
+
+  ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎  ‎‎ <img width="150" height="20" alt="IMG_0712" src="https://github.com/user-attachments/assets/593bd5a4-dc41-4e61-8a98-a851cae3c535" /> <img width="150" height="20" alt="IMG_0711" src="https://github.com/user-attachments/assets/342dd7c6-d3ee-4855-9d7c-2dea20c41393" /> <img width="150" height="20" alt="IMG_0710" src="https://github.com/user-attachments/assets/8ec3558f-e801-44a1-9fd9-1b1b3d8d8988" />
 <img width="780" height="96" alt="IMG_6837" src="https://github.com/user-attachments/assets/8a5d9ed9-791d-4f91-84e4-4e8461707b89" />
 
 
